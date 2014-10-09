@@ -34,4 +34,4 @@ Hoofdattributen: GRIJS! , simplistisch , uiteindelijk fit voor verkoop(!)
 
   Geel vakje= huiswerk niet af groen vakje= huiswerk af rood uitroepteken= toets of opdracht
 
-  In de zij menu kun je de opties en dergelijke bekijken
+  In de zij menu kun je de opties en dergelijke bekijken LOL KIJK IK HEBT VERANDERD
